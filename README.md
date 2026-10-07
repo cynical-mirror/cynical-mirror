@@ -2,7 +2,7 @@
 
 <p align="center">
   <!-- 1. PASTE YOUR CASCADING ERROR WINDOWS OR DOPPEL IMAGE LINK HERE -->
-  <img src="https://files.catbox.moe/9ksfpa.png" width="400" />
+  <img src="https://files.catbox.moe/9ksfpa.png" width="500" />
 </p>
 
 <p align="center">
@@ -19,11 +19,11 @@
 - **Status:** Copying his movements 1.5 seconds behind, but make it romantic.
 - **Current Hyperfixation:** roblox "grace"
 
-### MY HUSBAND  ! // /john-grace
+### MY HUSBAND  ! // /john-grace 
 
 <p align="center">
   <!-- 2. PASTE YOUR PRIEST JOHN GRACE / SINNER IMAGE LINK HERE -->
-  <img src= "https://files.catbox.moe/bezsjh.png" width="320" />
+  <img src= "https://files.catbox.moe/bezsjh.png" width="400" />
 </p>
 
 > `[SYSTEM NOTICE]: MY WONDERFUL HUSBAND....BUT..HES A CATTTHHH`
@@ -32,7 +32,7 @@
 
 <p align="left">
   <!-- 3. PASTE YOUR COMPLED WALKING CAT SINNER GIF LINK HERE -->
-  <img src="https://files.catbox.moe/lu24ph.gif" width="490" />
+  <img src="https://files.catbox.moe/lu24ph.gif" width="400" />
 </p>
 
 <sub>**give him a treat!!! :3**</sub>
