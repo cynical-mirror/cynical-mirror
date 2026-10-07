@@ -32,7 +32,7 @@
 
 <p align="left">
   <!-- 3. PASTE YOUR COMPLED WALKING CAT SINNER GIF LINK HERE -->
-  <img src="https://files.catbox.moe/lu24ph.gif" width="120" />
+  <img src="https://files.catbox.moe/lu24ph.gif" width="490" />
 </p>
 
 <sub>**give him a treat!!! :3**</sub>
