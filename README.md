@@ -26,7 +26,6 @@
   <img src= "https://files.catbox.moe/bezsjh.png" width="400" />
 </p>
 
-> `[SYSTEM NOTICE]: MY WONDERFUL HUSBAND....BUT..HES A CATTTHHH`
 
 ###  WORKING CYCLE: cat_sinner.exe
 
