@@ -19,16 +19,16 @@
 - **Status:** Copying his movements 1.5 seconds behind, but make it romantic.
 - **Current Hyperfixation:** roblox "grace"
 
-### 🔒 MY HUSBAND ARCHIVE ! // /john-grace
+### MY HUSBAND  ! // /john-grace
 
 <p align="center">
   <!-- 2. PASTE YOUR PRIEST JOHN GRACE / SINNER IMAGE LINK HERE -->
-  <img src= "https://files.catbox.moe/m6qhyb.png" width="320" />
+  <img src= "https://files.catbox.moe/bezsjh.png" width="320" />
 </p>
 
 > `[SYSTEM NOTICE]: MY WONDERFUL HUSBAND....BUT..HES A CATTTHHH`
 
-### 🐈 WORKING CYCLE: cat_sinner.exe
+###  WORKING CYCLE: cat_sinner.exe
 
 <p align="left">
   <!-- 3. PASTE YOUR COMPLED WALKING CAT SINNER GIF LINK HERE -->
